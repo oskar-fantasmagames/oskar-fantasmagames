@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @oskar-fantasmagames
+- 👀 I’m interested in ... cookies.
+- 🌱 I’m currently learning ... stuff.
+- 💞️ I’m looking to collaborate on ... magic.
+- 📫 How to reach me ... don't.
+- ⚡ Fun fact: ... No.
